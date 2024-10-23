@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c# and lua
 - 💞️ I’m looking to collaborate on @ninjamuffin99
 - 📫 How to reach me VK: id761026043 e-mail: solidarnostyoutub@gmail.com
-- 😄 Pronouns: ???
+- 😄 Pronouns: he (idk seems to be correct)
 - ⚡ Fun fact: I'M RUSSIAN LOL
 
 <!---
